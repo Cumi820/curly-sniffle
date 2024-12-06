@@ -1,4 +1,4 @@
 # curly-sniffle
 My first Repository
 
-TOKYO JAPAN
+TO BE A PROGRAMMER
