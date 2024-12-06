@@ -1,4 +1,4 @@
 # curly-sniffle
 My first Repository
 
-SKIP
+LUMPIA SHANGHAI, GULAY, SARIWA
