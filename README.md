@@ -1,4 +1,4 @@
 # curly-sniffle
 My first Repository
 
-NVNVBHFD
+I SERVE GOD!
